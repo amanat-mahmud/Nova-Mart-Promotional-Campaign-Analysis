@@ -26,7 +26,7 @@ The Sales Director at Nova Mart is keen to understand how these promotions influ
 
 [![Watch the video](https://img.youtube.com/vi/W9CByPgTtlE/maxresdefault.jpg)](https://youtu.be/W9CByPgTtlE)
 
-### [Watch this video on YouTube](https://youtu.be/W9CByPgTtlE)
+### [Watch project presentation on YouTube](https://youtu.be/W9CByPgTtlE)
 
 ---
 

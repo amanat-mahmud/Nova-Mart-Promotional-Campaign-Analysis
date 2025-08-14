@@ -63,4 +63,8 @@ The Sales Director at Nova Mart is keen to understand how these promotions influ
 5. Sharpened analytical and problem-solving abilities.
 6. Actionable Insights Generation.
 
+[![Watch the video](https://img.youtube.com/vi/W9CByPgTtlE/maxresdefault.jpg)](https://youtu.be/W9CByPgTtlE)
+
+### [Watch this video on YouTube](https://youtu.be/W9CByPgTtlE)
+
 © Amanat.
